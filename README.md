@@ -6,6 +6,4 @@
 
 ![](pix/Study5.png)
 
-![](pix/04-toilet-art.png)
-
 [[ Everyday ]](https://youtu.be/owE3nSQsuEM)
